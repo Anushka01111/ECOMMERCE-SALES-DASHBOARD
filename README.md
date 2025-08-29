@@ -100,7 +100,6 @@ The dataset includes:
 
 For queries or feedback, feel free to reach out:  
 [Anushka Roy] – [anushka.roy112@gmail.com]  
-[LinkedIn Profile](https://www.linkedin.com/in/anushkaroy1111/)
 
 ---
 
